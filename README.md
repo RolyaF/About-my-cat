@@ -1,4 +1,4 @@
-# ![Гиф с котиками](https://tenor.com/ru/view/кот-чавкает-смотритвкамеру-gif-23807448)
+# ![https://tenor.com/ru/view/кот-чавкает-смотритвкамеру-gif-23807448]
 **I dedicate this page to my favorite cat**
 
 A few facts about her: 
